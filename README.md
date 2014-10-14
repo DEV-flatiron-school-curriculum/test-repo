@@ -1,1 +1,1 @@
-teach me how to emoji :+1: :smile:
+teach me how to emoji
